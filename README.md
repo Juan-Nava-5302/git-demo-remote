@@ -1,1 +1,1 @@
-xdxdxdxdxd contenido audiovisual erótico xdxdxd
+Este es un repositorio de prueba, con el objetivo de probar la colaboración de una sola cuenta desde diferenes equipos.
